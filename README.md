@@ -1,2 +1,2 @@
 # Data-Projects-Portfolio
-check here for my data projects
+Welcome to my GitHub profile!
